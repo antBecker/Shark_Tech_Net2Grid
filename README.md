@@ -17,9 +17,9 @@ LinkedIn: https://www.linkedin.com/in/!!/
 
 ## Noah Navarro de Pádua:
 
-Github: https://github.com/!!/
+Github: https://github.com/noahnavarro/
 
-LinkedIn: https://www.linkedin.com/in/!!/
+LinkedIn: https://www.linkedin.com/in/NOAHNP/
 
 ## Tomás Ferreira:
 
