@@ -25,4 +25,4 @@ LinkedIn: https://www.linkedin.com/in/NOAHNP/
 
 Github: https://github.com/tomasferreira06/
 
-LinkedIn: https://www.linkedin.com/in/tom%C3%A1s-ferreira-724a201a1/
+LinkedIn: https://www.linkedin.com/in/tomasferreira06/
