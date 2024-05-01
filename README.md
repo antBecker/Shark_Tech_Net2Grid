@@ -11,9 +11,9 @@ LinkedIn: https://www.linkedin.com/in/theantoniobecker/
 
 ## Hélio Almeida:
 
-Github: https://github.com/!!/
+Github: https://github.com/HelioGAfer
 
-LinkedIn: https://www.linkedin.com/in/!!/
+LinkedIn: https://www.linkedin.com/in/hélio-ferreira/
 
 ## Noah Navarro de Pádua:
 
